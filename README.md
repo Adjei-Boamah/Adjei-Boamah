@@ -1,5 +1,6 @@
 # 💫 About Me:
-I am currently learning and open for any collaboration 
+THIS IS WHERE I BEGIN MY JOURNEY AS A DEVELOPER READY TO LEARN,BUILD AND COLLABORATE WITH OTHER PEOPLE
+CHASING ALL MY GOALS...................
 
 
 ## 🌐 Socials:
